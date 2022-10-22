@@ -17,6 +17,12 @@
 ![Ariadna Citlalli Alcantara](https://user-images.githubusercontent.com/73726138/197361523-e16dc811-5f47-4741-a7cb-efc00f20d529.jpg)
 ![Fernando Jose Lugo](https://user-images.githubusercontent.com/73726138/197361529-07df6e22-5f6d-42db-85d3-08c252a1ef0d.jpg)
 ![Valeria Piña Molina](https://user-images.githubusercontent.com/73726138/197361560-395854f3-0e96-4dd3-95f4-1efdc3cda724.jpg)
-
+![Hilda Isidoro](https://user-images.githubusercontent.com/73726138/197361611-52303f47-d23a-4173-b80d-35381b5be635.jpg)
+![Maria Gloria Navarrete](https://user-images.githubusercontent.com/73726138/197361620-b32dddf1-f2dd-476c-9cb1-fbcb2352629f.jpg)
+![Emelin Lopez](https://user-images.githubusercontent.com/73726138/197361625-51dd3eef-5984-4d29-94cd-805a5b3cacff.jpg)
+![Jimena Flores](https://user-images.githubusercontent.com/73726138/197361635-aa55a366-1192-47c0-810c-8b5c3d501ecc.jpg)
+![Irvin Davila](https://user-images.githubusercontent.com/73726138/197361643-009cb9df-72fb-4034-9bf0-bfa3f264d078.jpg)
+![Gorge Alejandro Melesio](https://user-images.githubusercontent.com/73726138/197361646-de1a6d2a-7747-47db-a67f-7dcfc08be2ce.jpg)
+![Hugo Sanchez](https://user-images.githubusercontent.com/73726138/197361654-c9291944-f0d2-4106-b791-4a8392e5b795.jpg)
 
 
