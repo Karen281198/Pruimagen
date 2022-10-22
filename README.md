@@ -6,3 +6,4 @@
 
 ![Angel Avelino](https://user-images.githubusercontent.com/73726138/197318125-ab1dc8af-29cf-4ef4-a771-dd5f76e847e3.jpg)
 
+![Maricruz Hernandez](https://user-images.githubusercontent.com/73726138/197361162-d1d8fe4c-11ad-410b-8294-89a8c5c89832.jpg)
