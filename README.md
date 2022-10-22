@@ -24,5 +24,14 @@
 ![Irvin Davila](https://user-images.githubusercontent.com/73726138/197361643-009cb9df-72fb-4034-9bf0-bfa3f264d078.jpg)
 ![Gorge Alejandro Melesio](https://user-images.githubusercontent.com/73726138/197361646-de1a6d2a-7747-47db-a67f-7dcfc08be2ce.jpg)
 ![Hugo Sanchez](https://user-images.githubusercontent.com/73726138/197361654-c9291944-f0d2-4106-b791-4a8392e5b795.jpg)
+![Ernesto Hernandez](https://user-images.githubusercontent.com/73726138/197361705-b741a782-b5ac-4ac9-845b-297ac08ae70a.jpg)
+![Jonathan Emmanuel Cardoso](https://user-images.githubusercontent.com/73726138/197361708-d10508fd-9195-4970-8d8a-ea6d4f2b6388.jpg)
+![Elayne Krystle Eugenio](https://user-images.githubusercontent.com/73726138/197361714-a35b3f57-b0bd-4c16-a34f-4078d44823d9.jpg)
+![Juan Jose Piña](https://user-images.githubusercontent.com/73726138/197361725-a7f10bbe-1453-4511-b832-7087bf2930b1.jpg)
+![Alexis Becerril](https://user-images.githubusercontent.com/73726138/197361731-8dc2f58c-6dd4-41e6-a1fa-2b766653685a.jpg)
+![Jennifer Gasca](https://user-images.githubusercontent.com/73726138/197361743-4ef9d367-87b8-4cb0-b537-d550f65ba399.jpg)
+![Cristian Vazquez](https://user-images.githubusercontent.com/73726138/197361748-6c1697b0-9904-4633-8d9d-bc5493cc09e8.jpg)
+
+
 
 
