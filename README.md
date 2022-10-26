@@ -32,5 +32,5 @@
 ![Jennifer Gasca](https://user-images.githubusercontent.com/73726138/197361743-4ef9d367-87b8-4cb0-b537-d550f65ba399.jpg)
 ![Cristian Vazquez](https://user-images.githubusercontent.com/73726138/197361748-6c1697b0-9904-4633-8d9d-bc5493cc09e8.jpg)
 
-
+![WhatsApp Image 2022-10-26 at 12 22 24 PM](https://user-images.githubusercontent.com/73726138/198101395-c917c58e-f0eb-424f-aa96-b4849a9be063.jpeg)
 
